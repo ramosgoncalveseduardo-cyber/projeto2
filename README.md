@@ -12,4 +12,7 @@ o ultimo vencedor do torneio nacional 👑
 
 
 
-https://media.tenor.com/dv31WtCkPcAAAAAi/barcelona.gif
+![gif do barcelona](https://media.tenor.com/dv31WtCkPcAAAAAi/barcelona.gif)
+
+
+[maior virada do Barcelona](https://www.youtube.com/watch?v=dghDh1Nnkzo)
